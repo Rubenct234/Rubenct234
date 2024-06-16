@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Automatism funcionales.
 - 💞️ I’m looking to collaborate on trading operations nyse.
 - 📫 How to reach me rubencardenastorres@gmail.com 
-- 😄 Pronouns: robing 
+- 😄 Pronouns: robin
 
 
 <!---
